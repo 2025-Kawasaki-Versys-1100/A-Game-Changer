@@ -2,7 +2,7 @@
 
 The .2025 Kawasaki Versys 1100. is here, replacing the .Versys 1000. with a more powerful engine, upgraded features, and a surprising .price drop.. Priced at .₹12.9 lakh (ex-showroom)., it costs .over ₹1 lakh less. than its predecessor. With a bigger .1,099cc engine., modern features, and a sleek design, it aims to dominate the .adventure touring. segment. Let’s break down why this bike is a .solid upgrade. and a .smart buy..
 
----
+------More news ......https://driveforcenow.com/2025-kawasaki-versys-1100-bigger-engine-lower-price-a-game-changer/
 
 ..Kawasaki Versys 1100: Price & Availability.
 
